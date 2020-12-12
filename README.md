@@ -1,3 +1,3 @@
   # Pain
   
-  My back is hurting!. 
+  My back is hurting!
